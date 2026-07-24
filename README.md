@@ -5,6 +5,9 @@
   
 ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀⠀  ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀⠀⠀⠀ ⠀ ⠀ ⠀ ⠀⠀ ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀[atabook](https://mustymane.atabook.org) 𖦹 [full kinlist](https://pronouns.cc/@mustymane)
 </p>
+<p align="center">
+<img width="100" height="58" alt="image" src="https://github.com/user-attachments/assets/9988d445-78b6-4acd-886b-eaa767bb69a9" /> <img width="100" height="58" alt="image" src="https://github.com/user-attachments/assets/4c59e044-456e-4bab-85b3-943ff14a6e55" />
+
 
 ---
 <p align="center">
