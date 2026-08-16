@@ -16,4 +16,4 @@
   
   ![skull divider](https://64.media.tumblr.com/7eb75b65a776ddc48ff19e34c4912bbb/3ed2fbfb36406d8d-56/s540x810/c8970a9951b89f921432ec463ff7fc5a52305731.gifv) <div align="center"> 
 
-[Strawpage](https://strangleduntilred.straw.page)
+[Strawpage](https://strangleduntilred.straw.page) ![aaaa soo scay](https://64.media.tumblr.com/b4cb7b001b7e4c62ac17d43e3e6dafea/0267cbb62ed7e3e6-0f/s75x75_c1/df45c6a3a179bac081aee7e5b0f8ac4a105cca78.gifv)
