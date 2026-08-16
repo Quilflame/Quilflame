@@ -16,4 +16,4 @@
   
   ![skull divider](https://64.media.tumblr.com/7eb75b65a776ddc48ff19e34c4912bbb/3ed2fbfb36406d8d-56/s540x810/c8970a9951b89f921432ec463ff7fc5a52305731.gifv) <div align="center"> 
 
-![https://mustymane.atabook.org](https://64.media.tumblr.com/913db989beb918c3da620ccf5fec044f/f41d6bb38ab20d4e-43/s250x400/e43960615ec6b600d4f1109172bbe8ff1ba5dfb0.pnj) ![https://strangleduntilred.straw.page](https://64.media.tumblr.com/e599ef1ca28b34cfc168a56b51fec07a/f41d6bb38ab20d4e-e2/s250x400/21bc4522280ade73f59b196fa2c337000ea570c1.pnj)
+[<img src=https://64.media.tumblr.com/e599ef1ca28b34cfc168a56b51fec07a/f41d6bb38ab20d4e-e2/s250x400/21bc4522280ade73f59b196fa2c337000ea570c1.pnj>](https://mustymane.atabook.org)
