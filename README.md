@@ -2,4 +2,6 @@
 
 <div align="center"> 
   
+![](https://komarev.com/ghpvc/?username=quilflame&style=for-the-badge&label=but_she's_my_miki...&color=red)
+
 ![charizard banner](https://64.media.tumblr.com/90669478e7390f8e6d3869b80d1912ec/2d8cbff5f65182c7-05/s500x750/a96681215b7822f959c517a2184142dc95622bb9.gifv)
