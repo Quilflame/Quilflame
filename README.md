@@ -15,3 +15,5 @@
 </p>
   
   ![skull divider](https://64.media.tumblr.com/7eb75b65a776ddc48ff19e34c4912bbb/3ed2fbfb36406d8d-56/s540x810/c8970a9951b89f921432ec463ff7fc5a52305731.gifv) <div align="center"> 
+
+[strawpage](https://strangleduntilred.straw.page)
