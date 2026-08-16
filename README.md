@@ -1,5 +1,5 @@
-![firedivider](https://64.media.tumblr.com/808739cdf65ed91138c68c8ecab59dfc/efbf2c183c035cde-73/s1280x1920/dd269867257be498591145da21093a1b76e88e16.pnj)
+![](https://64.media.tumblr.com/412d7d06fd684376dfac8bced6e35dca/b8cd044ac524d7bb-33/s2048x3072/048cb9512c61e3fb2095c6a05d4e94f78485141d.pnj)
 
 <div align="center"> 
   
-![charizard](https://64.media.tumblr.com/3a4d132c423a548e369e46fccd85ed05/5615b88e542a1644-b5/s500x750/38ab132afe565f0639c4c8cfadab4fd7aca57f97.gifv) <div align="center"> 
+![charizard banner](https://64.media.tumblr.com/90669478e7390f8e6d3869b80d1912ec/2d8cbff5f65182c7-05/s500x750/a96681215b7822f959c517a2184142dc95622bb9.gifv)
